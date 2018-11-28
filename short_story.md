@@ -1,0 +1,1 @@
+The man grabbed a brown bag covered in dust.
